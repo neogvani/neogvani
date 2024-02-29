@@ -6,7 +6,7 @@ i luv: tgo and lyfe
 
 meet me at: ertha
 
-dc & ig: @neogvani
+dc: @neogvani
 
 <!---
 benitoflakes/benitoflakes is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
